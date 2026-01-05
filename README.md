@@ -4,7 +4,8 @@
 
 ༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶
 
-![Your banner alt text](https://i.pinimg.com/1200x/1f/38/7b/1f387b6b4f300fa5b5585ad23c367f3a.jpg)
+> I know I am superior to my drunken, stupid failure of a father in every way. But the sight of him reduces Doctor Octopus to a sniveling child, living in fear of his belt, the ring on his finger. One of the most feared super villains on the planet, and it makes no difference. Not against him.
+
 
 ༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶
 
@@ -14,6 +15,8 @@ I really like a lot of fandoms or have some knowlege of them so I might know you
 
 <p align="center">Check out my strawpage or atabook if you want! Byeeeeeee!!!! HUZZAH!!!!</p>
 
+
+<p align="center"> [strawpage 1](https://tssmottosbowtie.straw.page) [strawpage 2](https://trevorphilipsskid.straw.page) 
 
 
 ༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶
