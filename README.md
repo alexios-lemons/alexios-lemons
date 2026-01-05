@@ -16,9 +16,6 @@ I really like a lot of fandoms or have some knowlege of them so I might know you
 <p align="center">Check out my strawpage or atabook if you want! Byeeeeeee!!!! HUZZAH!!!!</p>
 
 
-<p align="center"> [strawpage 1](https://tssmottosbowtie.straw.page) [strawpage 2](https://trevorphilipsskid.straw.page) 
-
-
 ༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶
 
 ![Your banner alt text](https://i.pinimg.com/1200x/00/ed/d1/00edd15e383f57feab058d37802b3b88.jpg)
