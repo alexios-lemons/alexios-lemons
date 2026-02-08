@@ -13,7 +13,8 @@
 <p align="center">Hello! I'm Alexios! If you see this, I bet you met me or saw me on Ponytown! I use they/them/it/its pronouns!
 I really like a lot of fandoms or have some knowlege of them so I might know yours no matter what! :D</p>
 
-<p align="center">Check out my strawpage or atabook if you want! Byeeeeeee!!!! HUZZAH!!!!</p>
+[strawpage](https://tssmottosbowtie.straw.page) ༶•┈┈୨♡୧┈┈•༶ [strawpage 2](https://trevorphilipsskid.straw.page) ༶•┈┈୨♡୧┈┈•༶ [atabook](https://alexioslemons.atabook.org/) ༶•┈┈୨♡୧┈┈•༶ [guns](https://guns.lol/alexioslemons) ༶•┈┈୨♡୧┈┈•༶ [pronouns](https://prns.cc/tcdpl)
+
 
 
 ༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶
