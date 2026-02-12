@@ -22,7 +22,10 @@
 <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/19b597e2-66b9-4c8d-9227-4ba7d28cd68b"/> <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/05cd8604-8a19-4211-ba7a-0df361ffe864" /> <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/bc1a9efd-bc4a-4c40-a197-0f7e6a499068" /> <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/2589f750-6191-4b4e-9559-2b59ef937709" /> <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/31a99ee6-dbea-4dde-9b0a-be5b10f1aeee" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/00f58d74-d97a-4cb0-8ef5-11130c366ef5" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2c7c141c-ec5b-4c4a-a472-6b514c35b3dc" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/25b40ec4-7baa-46e7-8afd-e82f0fb93958" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2d761b4e-d8b2-41c6-b3f0-784f9ad7aa2f" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d6538e45-0686-4edd-8c71-744d5d87ee38" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e39f80cf-b2d6-4b4f-99c7-3c36cee85f23" />
 
 
-
+<details>
+<summary>DNI, kindly</summary>
+  25+, -13, TRASH, standard DNI, knows me irl or thinks they know me irl, anyone who has sent me death threats before, proship/darkshippers, trevor philips yumes or fans that sexualise him, any one who dictates systems or treats alters like their sources, and byler fans (/hj)
+</details>
 
 
 ༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶
