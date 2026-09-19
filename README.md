@@ -23,9 +23,10 @@
 
 
 <details>
-<summary>DNI, kindly</summary>
-  25+, -13, TRASH, standard DNI, knows me irl or thinks they know me irl, anyone who has sent me death threats before, proship/darkshippers, trevor philips yumes or fans that sexualise him, any one who dictates systems or treats alters like their sources, and byler fans (/hj)
-</details>
+<summary>Extra Stupid Info (If you don't wanna check muy links)</summary>
+  I'm seventeen! I kinda just don't do much and I'm not online ponytown all that much anymore. I kinda stopped playing bc I get bored SUPER easily on there. Still, if I am online, hello! For my fellow typology people: I'm a sp954 (9w8) and an INTJ. "Withdrawn triad" really smacked me in the face. Anyway, yeah. I like Otto Octavius and Trevor Philips a lot.
+
+  
 
 
 ༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶༶•┈┈୨♡୧┈┈•༶
