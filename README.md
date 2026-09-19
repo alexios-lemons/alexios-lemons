@@ -23,7 +23,7 @@
 
 
 <details>
-<summary>Extra Stupid Info (If you don't wanna check muy links)</summary>
+<summary>Extra Stupid Info (If you don't wanna check my links)</summary>
   I'm seventeen! I kinda just don't do much and I'm not online ponytown all that much anymore. I kinda stopped playing bc I get bored SUPER easily on there. Still, if I am online, hello! For my fellow typology people: I'm a sp954 (9w8) and an INTJ. "Withdrawn triad" really smacked me in the face. Anyway, yeah. I like Otto Octavius and Trevor Philips a lot.
 
   
